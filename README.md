@@ -1,0 +1,2 @@
+# Podstawy
+pierwsze ćwiczenia
